@@ -1,2 +1,2 @@
-#Bayman Zada
-## Kurdish American
+Bayman Zada
+# Kurdish American
