@@ -1,4 +1,4 @@
-Bayman Zada
+#Bayman Zada
 #Kurdish American
 ##Bachelor Degree in Global Health from UCSD
 Pursung Mastre Degree in Public Health from SDSU
