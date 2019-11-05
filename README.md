@@ -1,3 +1,4 @@
   Bayman Zada
 ## Kurdish American
-### From San Diego
+### Bachelor degree in Global Health Diego UCSD 
+#### Pursuing master degree in Public Health from SDSU
